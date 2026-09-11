@@ -1,9 +1,9 @@
-<font size="28">fsociety</font>
+# fsociety
 
 ![](https://hips.hearstapps.com/es.h-cdn.co/fotoes/images/series-television/mr-robot-comic-como-surgio-fsociety/138143322-1-esl-ES/Mr.-Robot-contara-como-surgio-fSociety-en-un-comic.jpg?resize=1400:*)
 
 
-<font size="28">with this 3p1k 3lit3 h1x0r tool you can own stupid dummies</font> \
+**with this 3p1k 3lit3 h1x0r tool you can own stupid dummies** \
 like mr robot
 
     _____       __  _                                        
@@ -26,5 +26,5 @@ to delete youre' enemies
         \|__|       \|__|\|__| \|__|\|_______|\|__|\|__|\|__|\|__|\|__|     \|__|     \|__|\|__| \|__|\|_______|\_________\|__|\|__||\____/ /    
                                                                                                             \|_________|         \|____|/     
                                                                                                                                                 
-google backdoor (paypal me $10 to get)
+faang + openai + antrophic backdoor (paypal me $10 to get (100% real) my credit card number is at bottom)
                                                                                                                                                
